@@ -19,7 +19,7 @@
 
 💼 Available for freelance projects on [Upwork](https://www.upwork.com/freelancers/~013796bd414785ddfc?viewMode=1)  
 📧 Email: basharatalik666@gmail.com  
-🌐 Portfolio: (https://dev-basharat-ali.pantheonsite.io/)
+🌐 Portfolio: (https://dev-wordpress-developer-website.pantheonsite.io/)
 
 
 
